@@ -47,3 +47,6 @@ just going to throw them in the dumpster out back.
 And so came the new skis, along with lots of other things, much to the
 demur of my wife (but I'll leave that for another post)
 
+In conclusion, Clif's Pro Tip #2: If you've had the same ski gear for over 15
+years, you should probably go shopping.
+
